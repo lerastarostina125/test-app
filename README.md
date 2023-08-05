@@ -1,1 +1,1 @@
-nor little bank himself proud never cool sleep tax pencil adjective soap expect older joined
+amount oxygen put give frequently fence arrow apartment like take silence column one crew alphabet
