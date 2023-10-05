@@ -1,1 +1,1 @@
-captured ruler dark went twelve sea these animal teacher dig eight leather entire wise whistle
+throat hide increase glad bet mother country establish continued clearly tail board determine widely hair
