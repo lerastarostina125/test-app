@@ -1,1 +1,1 @@
-throat hide increase glad bet mother country establish continued clearly tail board determine widely hair
+stage observe butter area many finger price speed smile hang any brave mind if truck
