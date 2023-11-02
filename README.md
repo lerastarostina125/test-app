@@ -1,1 +1,1 @@
-determine model club build calm declared firm two tin children weak collect slow follow follow
+verb term long port tool rice southern forget onto shown supper brown compass hurry sat
