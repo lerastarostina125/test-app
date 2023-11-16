@@ -1,1 +1,1 @@
-keep origin unusual present average doctor should prove character run opportunity state see orbit hurt
+familiar whether mission travel thy part cutting population medicine palace observe positive arrow one ring
