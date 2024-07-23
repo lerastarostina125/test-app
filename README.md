@@ -1,1 +1,1 @@
-spent mother plenty depend standard western safety broke floor such market circus famous shop studied
+example list soft would discussion respect within right speech acres married fog ten reader goose
